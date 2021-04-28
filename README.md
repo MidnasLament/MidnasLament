@@ -1,4 +1,5 @@
-Hi I'm @MidnasLament
+Hi I'm @MidnasLament.
+
 Just a small programmer who has nothing better to do with his life.
 
 If you want to talk, my email is thebluechemical@gmail.com
